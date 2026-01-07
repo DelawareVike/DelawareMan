@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DelawareMan (Bill)
 - 👀 I’m interested in all things outdoors with family, but mostly just fishing
 - 💞️ I’m looking to collaborate on coding to make life easier and more efficient in my day to day work life
-- 📫 How to reach me: wmddavis@gmail.com
+- 📫 How to reach me: realbilldavis@gmail.com
 - 😄 Pronouns: He/Him
   
 <!---
